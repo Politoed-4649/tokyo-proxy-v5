@@ -98,9 +98,9 @@ konoMi[サイト教え合い]へ招待されています。
 
 You are invited to konoMi [site sharing].
 
-招待コード : 042158 
+招待コード : 564245 
 
-Invitation code: 042158
+Invitation code: 564245
 
 https://service.lsapp.space/konomi
 
@@ -111,8 +111,8 @@ https://discord.gg/44y6tSA3bM
 
 Tokyo is active on the above chat site.
 
-fiicenでフォローしてくれたら嬉しいです
+X(Twitter)でフォローしてくれたら嬉しいです
 
 I would be happy if you could follow me on fiicen
 
-https://fiicen.jp/field/tokyo_konoMi/
+https://twitter.com/KonoMi_Tokyo
