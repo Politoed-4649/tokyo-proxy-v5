@@ -6,7 +6,7 @@
 
 # 重要
 
-サイト入ったら URL + /proxy.html ってしてね☆<3
+サイト入ったら URL + /proxy.html って打ってエンターしてね☆<3
 
 # renderで作成する方法　How to create with render
 
