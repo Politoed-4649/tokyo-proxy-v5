@@ -113,6 +113,6 @@ Tokyo is active on the above chat site.
 
 X(Twitter)でフォローしてくれたら嬉しいです
 
-I would be happy if you could follow me on fiicen
+I would be happy if you could follow me on X(Twitter)
 
 https://twitter.com/KonoMi_Tokyo
